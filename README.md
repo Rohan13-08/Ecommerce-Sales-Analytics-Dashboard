@@ -36,7 +36,7 @@ Technology is the most profitable category
 
 Standard Class is the most chosen shipping mode
 
-📆 15-day Sales Forecast supports business planning
+15-day Sales Forecast supports business planning
 
 
 # Conclusion
